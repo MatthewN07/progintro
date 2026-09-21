@@ -1,1 +1,1 @@
-# test
+text od vyučujícího: 
